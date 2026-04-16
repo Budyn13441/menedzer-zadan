@@ -1,0 +1,1 @@
+Menedzer Zadan
